@@ -1,4 +1,4 @@
-If dupport needed please join our discord below :)
+If support needed please join our discord below :)
 
 
 
